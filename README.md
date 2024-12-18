@@ -11,6 +11,7 @@ https://riverhome.ae/
 https://dhakabangla.net/
  https://najat24news.com/
  https://bangladesh-news.com/
+ https://adeptintbd.com/
 https://rupashigroupbd.com/
  https://idab.com.bd/
 https://emonihari.com/
